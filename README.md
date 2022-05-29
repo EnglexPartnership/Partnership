@@ -43,7 +43,7 @@ _Ниже можно ознакомиться с ТЗ и рекламными м
 <summary>✅ Документы и рекламные материалы (нажмите для открытия меню):</summary>
   
  #### <div dir="rtl">:ТЗ Englex для партнеров </div>
- [💾 Скачать .pdf](https://www.dropbox.com/s/wlqdhw4dteeaslm/%D0%A2%D0%97%20Grow%20Food%20%D0%B4%D0%BB%D1%8F%20%D1%80%D0%B5%D0%BA%D0%BB%D0%B0%D0%BC%D0%BD%D0%BE%D0%B9%20%D0%B8%D0%BD%D1%82%D0%B5%D0%B3%D1%80%D0%B0%D1%86%D0%B8%D0%B8.rar?dl=1)
+ [💾 Скачать .pdf](https://www.dropbox.com/s/90ls1zkxdj4oowt/%D0%A2%D0%B5%D1%85%D0%BD%D0%B8%D1%87%D0%B5%D1%81%D0%BA%D0%BE%D0%B5%20%D0%B7%D0%B0%D0%B4%D0%B0%D0%BD%D0%B8%D0%B5.rar?dl=1)
   
  #### <div dir="rtl">:Договор на оказание рекламных услуг </div>
  [💾 Скачать .pdf](https://www.dropbox.com/s/ikcb4240omti24m/%D0%94%D0%BE%D0%B3%D0%BE%D0%B2%D0%BE%D1%80%20%D0%BE%D0%B1%20%D0%BE%D0%BA%D0%B0%D0%B7%D0%B0%D0%BD%D0%B8%D0%B8%20%D1%80%D0%B5%D0%BA%D0%BB%D0%B0%D0%BC%D0%BD%D1%8B%D1%85%20%D1%83%D1%81%D0%BB%D1%83%D0%B3.rar?dl=1)
