@@ -1,6 +1,6 @@
 # MUSIC MAKER 2022 PREMIUM EDITION ®
 -------------
-![alt-текст](https://i.imgur.com/UBfF4rA.jpeg)
+![alt-текст](https://imgur.com/a/5YXlr2a) 
 
 #### Want to make your own music, but have no experience with production? With Music Maker, you don't have to be a pro to make exciting music. Thanks to its easy-to-use interface, intuitive tools and the brand-new Song Maker AI, you'll be producing your own songs in no time. Explore a vast selection of sounds and loops for creating your own music – no previous experience required. And all that for free with Music Maker Free Edition. Start producing today and become part of our global community.
 
