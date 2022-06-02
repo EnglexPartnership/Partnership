@@ -1,6 +1,6 @@
 # Englex | Рекламная компания ®
 -------------
-https://imgur.com/a/Q8cilXJ
+[https://imgur.com/a/Q8cilXJ](https://i.imgur.com/5Xt8Q7i.jpeg)
 
 Englex - Онлайн-школа английского языка «Инглекс» уже 10 лет помогает своим студентам достигать поставленных целей:
 
